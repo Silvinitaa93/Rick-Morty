@@ -2,7 +2,7 @@
 
 ## **Duración estimada 🕒**
 
-x minutos
+Muchos minutos de mi vida y amor
 
 <br />
 
